@@ -1,1 +1,1 @@
-https://Becha86.github.io/rsschool-cv/
+https://Becha86.github.io/rsschool-cv/cv
